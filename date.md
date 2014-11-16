@@ -19,11 +19,12 @@ Both locations are a short walk from the recommended accommodation and each othe
 <div>Ultimately, we want you to be comfortable - it will be warm and humid - so leave the jeans, fur coats, sweaty polyesters, suits &amp; ties at home. :)</div><div>
 </div>
 
-**No gifts please** - no really. It may sound cliched and sappy, but all we really want is to have you - our dear friends and family - to share our special day with us. :)
+<div>**No gifts please** - no really. It may sound cliched and sappy, but all we really want is to have you - our dear friends and family - to share our special day with us. :) </div><div>
+</div>
 
 ## The day after
 
-We will have an after-party on the Sunday afternoon, either at the Anchorage or at the park next to Home Beach, anyone who is able stay and join us is welcome. 
+We will have a casual get together on the Sunday, either at the park next to Home Beach or at one of the accommodations, and anyone who is able stay and join us is welcome.
 
 There will probably be some shrimps on the barbie, cold beverages and swims on the beach. Duncan should bring his cricket stuff.&nbsp;**Yay!**
 <div>
