@@ -13,11 +13,13 @@ The ceremony will be around 3:30pm on Saturday the 7th of February. It will be h
 
 The reception will be held at the nearby Pt Lookout Community Hall. It will start from around dusk.
 
-Both locations are a short walk from the recommended accommodation and each other, and directions/maps will be provided closer to the date. :)
+Both locations are a short walk from the recommended accommodation and each other, and directions/maps will be provided closer to the date.
 
 **Dress code** is smart casual and footwear is optional during the ceremony (although you might want to wear something for the short walk to the reception). Note we will be on a sandy island, so choose your footwear wisely (stilettos at your own peril!).
 <div>Ultimately, we want you to be comfortable - it will be warm and humid - so leave the jeans, fur coats, sweaty polyesters, suits &amp; ties at home. :)</div><div>
 </div>
+
+**No gifts please** - no really. It may sound cliched and sappy, but all we really want is to have you - our dear friends and family - to share our special day with us. :)
 
 ## The day after
 
